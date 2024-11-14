@@ -8,6 +8,6 @@ Multi-inet lagoons, or shallow estuaries with multiple inlets, are common throug
 More broadly I am interested in any physics to do with coastal or estuarine processes.  
 
 ## Hobbies
-I am an avid runner and a member of the local run club in my community. I have ambitions of running the six world major marathons (1/6). When I have the time I enjoy getting down to the shore to surf or going to the catskills to camp. 
+I am an avid runner, hiker and rock climber. When I have the time I enjoy getting down to the shore to surf or going to the catskills to camp. 
 
 
